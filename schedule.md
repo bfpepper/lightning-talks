@@ -9,7 +9,7 @@
 ### Wednesday, September 7th
 
 1.Brian Heim - Programming & The Arts: toneprint technology from TC Electronics (musical instrument effects)
-2.
+2.Ben Pepper - The euroion constaliation.
 3. 
 
 ### Thursday, September 8th
